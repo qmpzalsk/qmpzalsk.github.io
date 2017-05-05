@@ -1,1 +1,0 @@
-# qmpzalsk.github.io
